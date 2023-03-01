@@ -1,0 +1,1 @@
+# 2017-ITaughtMyselfPython_IfIStillWorkedForThoseLunatics-IWouldNotHaveDoneThat_ItWasASeriousDeadEnd
